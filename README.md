@@ -7,6 +7,7 @@
 - 📫 How to reach me **aki.me.morin@gmail.com**
 - 📝 [gists](https://gist.github.com/akirco)
 - i am not an opportunist, but it's a fatal weakness.
+- bilibili - https://space.bilibili.com/377620015
 
 <!-- - 📝 I regularly write articles on [https://casuor.top](https://casuor.top)
 
